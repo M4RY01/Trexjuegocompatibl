@@ -1,1 +1,1 @@
-# Trexjuegocompatibl
+# JUEGOS-COMPATIBLES-CON-DISPOSITIVOS-AM2
